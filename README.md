@@ -1,17 +1,1 @@
-
-
-
-<-︵︵︵
-
-No Home
-‿‿‿
-
-⤷ ⠀⠀ wren 𓂃 rena ⠀੭
-
-◠◠ ⠀⠀⠀⠀ 4teen ⠀⠀ ꒰ any pronouns ꒱
-
-౿ ⠀ no tonetags ⠀⠀╰╮ ⠀⠀int freely !
-
-ꉂ ⠀ more on my ⠀ Carrd ⠀ ⟢
-  
-->
+![cyno-cyno-genshin](https://github.com/user-attachments/assets/5cf2758b-df11-4cdf-b371-af489ab6a10d)
