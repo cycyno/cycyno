@@ -1,4 +1,5 @@
 <p align="center"> <img src= "https://64.media.tumblr.com/86416a526e1434465c8f0189624eb29c/3e1c4115d43cbed4-e7/s1280x1920/efa195402078b5414cbda917a766d5d34b91e13a.pnj" alt="cyynoo" />
+<p align="center"> creds to submarine-06 on tumblr
 <p align="center"> <img src= "https://64.media.tumblr.com/ab38dc134bd76f525b7bd7c49cbba056/fd041819d793f8d8-bc/s2048x3072/411ba5d2ca3c444ed11410fa47778735778daa72.pnj" alt="divv1" />
 
 <p align="center"> <img src= "https://64.media.tumblr.com/87bcdd8f53babb31ef0bdf8db14a749a/c1bdcff10f74c583-62/s400x600/0fc21c74e81a754b8129357d05a3cd883f3fc29e.pnj" alt="divv2" />
