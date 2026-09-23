@@ -13,4 +13,4 @@
 <p align="center"> <img src="https://64.media.tumblr.com/6148c4f494c65e918eaa55bfb08e5958/3e1c4115d43cbed4-5a/s1280x1920/5641b13843b78f49e4173e9f28f0e235310785f6.pnj" alt="div" />
 <p align="center"> <img src= "https://media.discordapp.net/attachments/804978370050916362/1374487103622348900/tumblr_463b8db0b87a848f9bffcbb6673ceac1_4a64ea30_500.gif.webp?ex=68c4855e&is=68c333de&hm=1f89d866c00ba0c3e939aad6ad698e7f5049a42cac0020a60bbfa978ae48c5f5&=&animated=true" alt="div" />
 
-![Profile Views](https://komarev.com/ghpvc/?username=cycyno&style=flat-square&color=lightgrey&label=lawliet)
+
